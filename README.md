@@ -10,7 +10,7 @@ Regular HVAC service helps prevent breakdowns, improves energy efficiency, and e
 
 ## Common AC Problems in Mississauga Homes
 
-Is your central or **[ductless AC ready for spring](https://ckdigitalmktg.github.io/Is-Your-Ductless-AC-Ready-for-Spring-Signs-You-Need-Repair/)**? Air conditioning systems can develop issues over time, especially during peak summer use, leading to reduced cooling performance, higher energy bills, and unexpected breakdowns. The common AC problems are as follows:
+Is your central or **[ductless AC ready for spring](https://ckdigitalmktg.github.io/is-your-ductless-ac-ready-for-this-spring-signs-you-need-repair/)**? Air conditioning systems can develop issues over time, especially during peak summer use, leading to reduced cooling performance, higher energy bills, and unexpected breakdowns. The common AC problems are as follows:
 
 - AC not turning on due to electrical issues, thermostat problems, or component failure
 - Warm air from vents which is usually linked to refrigerant issues, compressor problems, or airflow restrictions
